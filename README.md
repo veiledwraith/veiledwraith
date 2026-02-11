@@ -1,5 +1,5 @@
 
          
-         ![yes](https://discord.com/channels/@me/1443926259057819751/1471229270113390653)
+![cat](https://media.giphy.com/media/JIX9t2j0ZTN9S/giphy.gif)
          
       figuring out how to do this ok ,,
